@@ -1,7 +1,7 @@
 # Panda Studios COI Mods
 
 A collection of mods for **Captain of Industry** by Panda Studios LLC.
-
+### donations cash app!!!!!!! if you want me to keep doing this lol cuz i want to!!!!! $pandalord421
 ## Mods included
 
 ### VehicleLimitMod
